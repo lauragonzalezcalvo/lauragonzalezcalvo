@@ -1,8 +1,6 @@
 ### Hi there 👋
 
-
-
-¡Hola! 
+SOBRE MÍ:
 
 Después de graduarme en Bellas Artes quise especializarme en el mundo de la programación web y he descubierto que es mi nueva pasión💫 
 
