@@ -6,7 +6,7 @@ Después de graduarme en Bellas Artes quise especializarme en el mundo de la pro
 Emprendí este viaje de la mano de Adalab, con su bootcamp de Programación Web. Durante 14 semanas, además de adquirir los conocimientos técnicos necesarios, desarrollé la filosofía Agile, el trabajo en equipo y la confianza para afrontar cualquier reto.
 Para mí la programación web es como un lienzo en blanco, hay un montón de posibilidades. 
 
-Yo soy la mano que da forma a las ideas. Creativa, responsable, tenaz y siempre en constante aprendizaje.  🚀 
+Creativa, responsable, tenaz y siempre en constante aprendizaje.  🚀 
 
 
 COMPETENCIAS TÉCNICAS:
